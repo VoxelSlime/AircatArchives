@@ -5,5 +5,5 @@ https://discord.gg/GcVA3MfqKF
 
 
 
-Also There are other servers (5) in total to be archived but they're currently not found
-Send screenshots of all channels and send all videos Here
+Also there are other servers (5) in total to be archived but they're currently not found
+Send screenshots of all channels and send all videos here
